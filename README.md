@@ -1,1 +1,1 @@
-Heyyyaaa, I am Harusakii and I love coding!
+Heyyyaaa, I am Haru and I love coding!
